@@ -1,1 +1,0 @@
-# Capstone_project_Covid_US
